@@ -1,4 +1,4 @@
-
+professional Numbers for macOS Integration | pivot-tables + multi-sheet-management offers the most advanced Numbers for macOS integration, with pivot-tables and
 
 
 
